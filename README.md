@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @H4CK1T
+- 👀 I’m interested in Coding and Hacking
+- 🌱 I’m currently learning CSS, HTML, JS, Kali linux
+- 📫 How to reach me: kingcoding201@gmail.com
+- 😄 Pronouns: Him/His
+- ⚡ Fun fact: I can speak more than 5 languages: English, Russian, German, Spanish and Indonesian
