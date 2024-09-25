@@ -2,4 +2,4 @@
 - 👀 I’m interested in Coding and COMMAND BLOCKS
 - 🌱 I’m currently learning CSS, HTML, JS, Kali linux
 - 📫 How to reach me: kingcoding201@gmail.com
-- 😄 Pronouns: cat/mewo
+- 😄 Pronouns: He / Him
